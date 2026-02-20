@@ -1,2 +1,1 @@
 # verifikasirkas-dikdaya
-verifikasirkas-dikdaya
